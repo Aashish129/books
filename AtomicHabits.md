@@ -129,7 +129,8 @@ theme in this book: feedback loops.
 - Your habits shape your identity, and your identity shapes your habits. It’s a two-way street.
 - The formation of all habits is a feedback loop (a concept we will explore in depth in the next chapter), but it’s
 important to let your values, principles, and identity drive the loop rather than your results.
-- The focus should always be on becoming that type of person, not getting a particular outcome.
+
+# The focus should always be on becoming that type of person, not getting a particular outcome.
 
 
 
