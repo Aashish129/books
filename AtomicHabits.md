@@ -51,7 +51,56 @@ FORGET ABOUT GOALS, FOCUS ON SYSTEMS INSTEAD
 
 ## Problem #4: Goals are at odds with long-term progress.
 
-### A SYSTEM OF ATOMIC HABITS
+# A SYSTEM OF ATOMIC HABITS
+
+- Habits are like the atoms of our lives. Each one is a fundamental unit that
+contributes to your overall improvement. At first, these tiny routines seem
+insignificant, but soon they build on each other and fuel bigger wins that
+multiply to a degree that far outweighs the cost of their initial investment. They
+are both small and mighty. This is the meaning of the phrase atomic habits—a
+regular practice or routine that is not only small and easy to do, but also the
+source of incredible power; a component of the system of compound growth.
+
+# How Your Habits Shape Your Identity (and Vice Versa)
+
+- once your habits are established, they seem to stick around forever especially the unwanted ones. Despite our best intentions, unhealthy habits like eating junk food, watching too much television, procrastinating, and smoking can feel impossible to break.
+
+- Changing our habits is challenging for two reasons: (1) we try to change the
+wrong thing and (2) we try to change our habits in the wrong way
+
+# THREE LAYERS OF BEHAVIOR CHANGE
+
+- The first layer is changing your outcomes. This level is concerned with
+changing your results: losing weight, publishing a book, winning a
+championship. Most of the goals you set are associated with this level of change.
+
+- The second layer is changing your process. This level is concerned with
+changing your habits and systems: implementing a new routine at the gym,
+decluttering your desk for better workflow, developing a meditation practice.
+Most of the habits you build are associated with this level.
+
+- The third and deepest layer is changing your identity. This level is
+concerned with changing your beliefs: your worldview, your self-image, your
+judgments about yourself and others. Most of the beliefs, assumptions, and
+biases you hold are associated with this level.
+
+- Many people begin the process of changing their habits by focusing on what
+they want to achieve. This leads us to outcome-based habits. The alternative is to
+build identity-based habits. With this approach, we start by focusing on who we
+wish to become.
+
+- There are a set of beliefs and assumptions that shape the system, an
+identity behind the habits.
+
+- The more pride you have in a particular aspect of your identity, the more
+motivated you will be to maintain the habits associated with it.
+
+- You are simply acting like the type of person you already
+believe yourself to be.
+
+
+
+
 
 
 
