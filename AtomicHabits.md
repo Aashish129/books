@@ -98,6 +98,8 @@ motivated you will be to maintain the habits associated with it.
 - You are simply acting like the type of person you already
 believe yourself to be.
 
+- Progress requires unlearning.
+
 
 
 
