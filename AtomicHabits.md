@@ -119,7 +119,19 @@ becoming yourself.
 - Decide the type of person you want to be.
 - Prove it to yourself with small wins.
 
-- 
+- “Who is the type of person that could get the outcome I want?”
+- Who is the type of person that could lose forty pounds?
+- Who is the type of person that could learn a new language?
+- Who is the type of person that could run a successful start-up?
+
+- The concept of identity-based habits is our first introduction to another key
+theme in this book: feedback loops.
+- Your habits shape your identity, and your identity shapes your habits. It’s a two-way street.
+- The formation of all habits is a feedback loop (a concept we will explore in depth in the next chapter), but it’s
+important to let your values, principles, and identity drive the loop rather than your results.
+- The focus should always be on becoming that type of person, not getting a particular outcome.
+
+
 
 
 
